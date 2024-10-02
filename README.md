@@ -38,7 +38,8 @@ puntos 1, 2, 3
 
 8.-
 
-![image](https://github.com/user-attachments/assets/1a460c48-127d-4586-87ad-9ec9c253f14b)
+![image](https://github.com/user-attachments/assets/ff467440-158a-40d7-9367-77477bc8dbde)
+
 
 ![image](https://github.com/user-attachments/assets/c1beb4ed-9138-4dda-beb9-a6491f3be6a3)
 
