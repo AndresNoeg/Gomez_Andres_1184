@@ -8,7 +8,8 @@ puntos 1, 2, 3
 
 4.-
 
-![image](https://github.com/user-attachments/assets/d2226194-fe54-458b-80c3-9d12a1a4f914)
+![image](https://github.com/user-attachments/assets/a4f75c70-a00b-4f34-bdb8-4fcaa1b92896)
+
 
 ![image](https://github.com/user-attachments/assets/5667299d-901d-46f5-a312-b677452c5341)
 
