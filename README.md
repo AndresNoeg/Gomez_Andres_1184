@@ -38,8 +38,7 @@ puntos 1, 2, 3
 
 8.-
 
-![image](https://github.com/user-attachments/assets/ff467440-158a-40d7-9367-77477bc8dbde)
-
+![image](https://github.com/user-attachments/assets/429bfdb5-1cf5-44af-ac63-0c29803dacbc)
 
 ![image](https://github.com/user-attachments/assets/c1beb4ed-9138-4dda-beb9-a6491f3be6a3)
 
@@ -51,7 +50,7 @@ puntos 1, 2, 3
 
 10.-
 
-![image](https://github.com/user-attachments/assets/dbc0ab86-c874-4ae8-8b79-9656fffb0090)
+![image](https://github.com/user-attachments/assets/024bf990-1df6-4819-ba32-626e4987c040)
 
 ![image](https://github.com/user-attachments/assets/daa95308-0bca-4042-9f70-318f90f87a2c)
 
