@@ -51,7 +51,7 @@ puntos 1, 2, 3
 
 10.-
 
-![image](https://github.com/user-attachments/assets/3f1b5531-a07e-40fb-85e4-e01f158fc2a3)
+![image](https://github.com/user-attachments/assets/dbc0ab86-c874-4ae8-8b79-9656fffb0090)
 
 ![image](https://github.com/user-attachments/assets/daa95308-0bca-4042-9f70-318f90f87a2c)
 
