@@ -1,7 +1,8 @@
 # Gomez_Andres_1184
 puntos 1, 2, 3
 
-![image](https://github.com/user-attachments/assets/469b0988-05d6-485f-aa78-a0b64b72efb1)
+![image](https://github.com/user-attachments/assets/7ebd38e5-b05a-4ce9-996e-d87d288223a6)
+
 
 ![image](https://github.com/user-attachments/assets/7d2c9784-237c-4901-bdf0-e097d3f9aaf7)
 
