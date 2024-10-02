@@ -30,7 +30,8 @@ puntos 1, 2, 3
 
 7.-
 
-![image](https://github.com/user-attachments/assets/e03ad94f-3af5-4b15-b0b5-1186a0ae1c6c)
+![image](https://github.com/user-attachments/assets/c68f9c8d-9249-4b3d-b7ad-a0f545dd0b67)
+
 
 ![image](https://github.com/user-attachments/assets/cf9f6e90-e1a1-4653-9cb5-6faa7720123e)
 
