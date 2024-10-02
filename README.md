@@ -22,7 +22,8 @@ puntos 1, 2, 3
 
 6.-
 
-![image](https://github.com/user-attachments/assets/7d13d0b5-c152-47c0-9d32-d630da1d87cb)
+![image](https://github.com/user-attachments/assets/6182db20-48b3-426b-945f-7c5ca393f397)
+
 
 ![image](https://github.com/user-attachments/assets/6938d2b8-d9c1-4768-b1e1-fd84e964d140)
 
